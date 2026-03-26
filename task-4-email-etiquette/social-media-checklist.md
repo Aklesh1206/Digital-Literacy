@@ -1,4 +1,4 @@
-***Responsible Social Media Checklist for College Students
+## Responsible Social Media Checklist for College Students
 
 ✅ The Do's
 
