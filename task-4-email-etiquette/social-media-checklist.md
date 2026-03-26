@@ -1,4 +1,5 @@
-##Responsible Social Media Checklist for College Students
+***Responsible Social Media Checklist for College Students
+
 ✅ The Do's
 
 1. Privacy Audit: Regularly check your account privacy settings to control who can see your personal information and posts.
